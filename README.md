@@ -14,6 +14,6 @@
 
 ### Joana Santos
 
-### Linkedin: https://www.linkedin.com/allanfreiresa/
+### Linkedin: https://www.linkedin.com/in/allanfreiresa/
 
 ```
